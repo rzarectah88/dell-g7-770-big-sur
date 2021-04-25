@@ -1,0 +1,1 @@
+# dell-g7-770-big-sur
